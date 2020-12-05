@@ -23,7 +23,7 @@ tags: [rice, orange, cinnamon, risotto]
 ### Preparation
 
 Squeeze the orange in a bowl.
-Get strips (3/4 mm thick) from the orange peel. Pay attention on remove the withe part of the pell form the strips (they are bitter).
+Get strips (3/4 mm thick) from the orange peel. Pay attention on remove the white part of the pell form the strips (they are bitter).
 Finely chop the onion.
 
 ### Broth
@@ -53,7 +53,7 @@ Add the remaining orange juice
 
 Mix
 
-When rice is almost ready, put the pan off the heat. Add Parmesan cheese and mix. If needed add salt. 
+When rice is almost ready, put the pan off the heat. Add the last part of butter, Parmesan cheese and mix. If needed add salt. 
 
 Wait two minutes while you stir the rice... 
 
