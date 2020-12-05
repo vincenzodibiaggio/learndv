@@ -35,9 +35,9 @@ The broth is used to cook rice. If the rice becomes dry, add broth!
 ### Execution
 
 In a pan put a drizzle of olive oil, the onion and a part of the butter over low heat.
-When the onion is just browned put half of the orange juice and turn the ingredients
+When the onion is just browned put half of the orange juice and mix the ingredients
 
-At the same time, in a saucepan, place the oils, a part of the butter. When the butter is melted, pur the rice and mix until rice is toasted (it becames translucent) for 3 minutes.
+At the same time, in a saucepan, place the oil, a part of the butter. When the butter is melted, put the rice and mix until rice is toasted (it becames translucent) for 3 minutes.
 
 Cover the rice with a ladle of broth.
 
@@ -53,7 +53,7 @@ Add the remaining orange juice
 
 Mix
 
-When rice is almost ready, put the pan off the heat. Add the last part of butter, Parmesan cheese and mix. If needed add salt. 
+When rice is almost ready, put the pan off the heat. Add the last part of butter, Parmesan cheese and mix. If needed add salt.
 
 Wait two minutes while you stir the rice... 
 
